@@ -1,3 +1,5 @@
+Buy me a Coffee for support: https://buymeacoffee.com/lucascoss1994
+
 PRO CONTROLLER GENERICO (CLONE DE SWITCH) NO WINDOWS 10 VIA BLUETOOTH
 ======================================================================
 
